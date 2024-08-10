@@ -19,3 +19,12 @@ upliod
 
 trining modle
 ![image](https://github.com/user-attachments/assets/51d32388-47ed-4a59-b163-b3b4be2e9361)
+Export
+![image](https://github.com/user-attachments/assets/6a697168-cec1-44e9-be17-1d74a4a265f1)
+file
+![image](https://github.com/user-attachments/assets/9bdfe53b-d267-4892-b9d6-2cce30e120a4)
+uplode image
+![image](https://github.com/user-attachments/assets/ce9411b0-80aa-4c41-ab5c-73cbace93a85)
+![image](https://github.com/user-attachments/assets/4569c28b-8d60-4aa6-bd30-4a8db0d88314)
+![image](https://github.com/user-attachments/assets/7c9718e7-19b3-4bc7-850d-bffb2909d961)
+
